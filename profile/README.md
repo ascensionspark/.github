@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 
-🙋‍♀️ Transform to a better future!
+🙋‍♀️ We believe we can help you to "Transform to a better future!"
 
 🌈 We offer the most flexible and user friendly solution for driving enterprise transformation and innovation!
 
